@@ -21,3 +21,7 @@ But she’s good…
 The only issue now,
 Is I think she wants to kill me…
 And without real blood, she just might be able to.
+
+S: “hey Devin? What were you thinking for dinner?
+I’m in the mood to cook,
+I was thinking steak?”
