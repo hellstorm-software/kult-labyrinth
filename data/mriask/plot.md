@@ -17,3 +17,7 @@ I haven’t eaten human in years.
 It’s too messy. 
 But she’s good…
 …Like, really good
+
+The only issue now,
+Is I think she wants to kill me…
+And without real blood, she just might be able to.
