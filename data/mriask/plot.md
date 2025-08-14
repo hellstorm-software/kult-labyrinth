@@ -25,3 +25,8 @@ And without real blood, she just might be able to.
 S: “hey Devin? What were you thinking for dinner?
 I’m in the mood to cook,
 I was thinking steak?”
+
+Yea something’s up…
+She never cooks.
+…and she definitely never cooks steak.
+
