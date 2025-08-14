@@ -7,3 +7,12 @@ I don’t think she knows I know yet, I mean how could she? Unless she somehow g
 
 ------
 
+My Roomate is a serial killer. 
+
+Now normally that would be some sort of dealbreaker…
+
+… you know, the risk of dying and all.
+
+And I know this is gonna sound crazy…
+
+…but hear me out. 
